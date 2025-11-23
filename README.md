@@ -1,2 +1,2 @@
 # Arch-Glow-Studio
-Hej tjej, är själv utbildad med bryn. Har hållit på med bryn i två år. 
+Hej! Jag är en utbildad och certifierad brynstylist med två års erfarenhet och ett stort fokus på att skapa perfekta bryn.
